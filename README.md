@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @knarfdu38
 - 👀 I’m interested in minecraft and youtube
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning youtubeur
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me youtube
+- 📫 How to reach me discord
 - 😄 Pronouns: i m fun 
 - ⚡ Fun fact: j oublie tout...
 
